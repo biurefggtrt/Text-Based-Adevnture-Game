@@ -13,5 +13,5 @@ inspired from titles like:
 
 and
 
-"The millianare Detective" by - Yasutaka Tsutsui
+"The millionare Detective" by - Yasutaka Tsutsui
 
