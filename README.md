@@ -5,7 +5,7 @@ this is an adventure game about sex, money and love
 
 inspired from titles like:
 
-"that time i got reincarnated as a slime" by - Fuse
+"That time i got reincarnated as a slime" by - Fuse
 
 ,
 
